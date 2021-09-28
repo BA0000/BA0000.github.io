@@ -1,2 +1,2 @@
-# BA0000.github.io
+# Self Destruction
 Восток-Бетон
